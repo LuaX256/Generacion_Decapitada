@@ -1,1 +1,0 @@
-# Generacion_Decapitada
